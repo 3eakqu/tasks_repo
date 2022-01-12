@@ -1,3 +1,2 @@
 # tasks_repo
-
-1.
+1. New rewards!
